@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+## 来 来 来，开黑，哥带你飞！！！！！！！
 
 You can use the [editor on GitHub](https://github.com/shouhule/myIndex/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
 
